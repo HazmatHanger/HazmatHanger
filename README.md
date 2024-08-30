@@ -1,6 +1,6 @@
 - Im Hazmathanger
 - i make stuff in hammer 
-- im wanna lern stuff for godot
+- im wanna learn coding for godot
 - im with ac woman
 -  How to reach me: have a discord and gamebanana account with the same name
 - i make maps for: tf2, cs:s and gmod
